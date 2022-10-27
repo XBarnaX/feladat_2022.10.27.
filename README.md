@@ -1,1 +1,1 @@
-# feladat_2022.10.27.
+Pál Barna
